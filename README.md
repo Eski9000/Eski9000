@@ -1,6 +1,6 @@
 I’m Eski9000
-I’m currently learning more python soon js
-How to reach me Eski#9000
+learing python
+How to reach me Eski#6423
 
 <!---
 Eski9000/Eski9000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
